@@ -1,0 +1,2 @@
+# Uppskov
+Efter husförsäljning 
